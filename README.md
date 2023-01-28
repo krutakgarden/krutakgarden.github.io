@@ -1,1 +1,0 @@
-# krutakgarden.github.io
